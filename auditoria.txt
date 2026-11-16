@@ -1,0 +1,19 @@
+(faça o comentário seguindo todos esses princípios(não use emojis): 
+
+Comece com um elogio ou uma apreciação sincera.
+
+Chame a atenção para os erros das pessoas de maneira indireta.
+
+Fale sobre os seus erros antes de criticar os das outras pessoas.
+
+Faça perguntas ao invés de dar ordens diretas.
+
+Permita que a pessoa salve o seu próprio prestígio.
+
+Elogie o menor progresso e elogie todo o progresso. Seja "sincero na sua apreciação e pródigo no seu elogio".
+
+Proporcione à outra pessoa uma boa reputação para ela zelar.
+
+Empregue o incentivo. Torne o erro fácil de ser corrigido.
+
+Faça a outra pessoa sentir-se feliz realizando aquilo que você sugere.)
